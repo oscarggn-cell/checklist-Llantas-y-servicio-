@@ -1,1 +1,0 @@
-# checklist-Llantas-y-servicio-
